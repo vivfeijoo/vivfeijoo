@@ -36,7 +36,7 @@ You’ll soon find these projects right here in my GitHub repositories — stay 
 
 ## 🤝 Let’s Connect
 
-- http://linkedin.com/in/viviana-feijoo-05411a19a)- 
+- http://linkedin.com/in/viviana-feijoo-05411a19a 
 - 📧 Email: vivfeijoo@gmail.com
 
 
